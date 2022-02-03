@@ -1,4 +1,4 @@
-- 👋 Oi, Eusou @Marciocamaraanalistadesistemas
+- 👋 Oi, Eu sou @Marciocamaraanalistadesistemas
 
 
 <!---
